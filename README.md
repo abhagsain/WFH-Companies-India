@@ -1,4 +1,4 @@
-### List of Indian Companies Offering Work From Home ♥
+### List of Companies in India Offering Work From Home ♥
 
 
 ![image](https://user-images.githubusercontent.com/36589645/155925798-a666a2ac-cce3-41ca-b01f-ec03caf3bbb1.png)
